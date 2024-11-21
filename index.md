@@ -38,8 +38,10 @@ I aim to use my skills in order to solve real life problems and serve as an asse
 - Lawn tennis interbranch winner girls
 ---
 ### CONTACT INFORMATION:
-**Name:** Kriti Bhatnagar
-**Mobile number:** 7300315778
-**Email ID:** 2023ucp1612@mnit.ac.in
-**Linkedin ID:** [_Click here to open my Linkedin Profile_](https://www.linkedin.com/in/kriti-bhatnagar-a945922b1/)  
+- **Name:** Kriti Bhatnagar
+- **Mobile number:** 7300315778
+- **Email ID:** 2023ucp1612@mnit.ac.in
+- **Address:** 24, Janpath, Shyam Nagar, Jaipur.
+- **Linkedin ID:** [_Click here to open my Linkedin Profile_](https://www.linkedin.com/in/kriti-bhatnagar-a945922b1/)  
+
 ---
